@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on GitHub
 - 📫 How to reach me @_.the_april_boy._
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I'm broke XD
+- ⚡ Fun fact: I'm noob XD
 
 <!---
 Astra004/Astra004 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
